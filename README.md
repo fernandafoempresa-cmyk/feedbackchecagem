@@ -1,2 +1,0 @@
-# feedbackchecagem
-Avaliação equipe
